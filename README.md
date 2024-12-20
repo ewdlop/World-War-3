@@ -12,3 +12,7 @@ Why? you killed my mother.
 
 
 [Faded](https://www.youtube.com/watch?v=n03IDJcsy5g)
+
+
+Trunp and Biden worked together to make 國母 not get elected
+
